@@ -1,2 +1,15 @@
-# CARA-DAFTAR-DAN-VERIFIKASI-BINARY.COM
-  Melayani Transaksi Deposit dan Withdraw ePayment Online &amp; Broker Forex/Options  Fasapay,Neteller,Skrill,Perfect Money,XM,Instaforex,Binary.com,Hotforex,Tickmillhttps://www.emoney.cash/  
+CARA DAFTAR DAN VERIFIKASI BINARY.COM
+Berikut Tutorial cara register/daftar dan verifikasi akun binary :
+
+8 Langkah bagaimana cara register/daftar dan verifikasi akun binary :
+
+1. Daftar akun Trading Option Binary.com
+2. Masukkan alamat email anda
+3. Klik Daftar Akun gratis
+4. Verifikasi token lewat email
+5. Buat Password password
+6. Pembuatan Akun Rill Binary.com
+*Input Data lengkap sesuai KTP
+7. Deposit Akun Binary.com
+8. Verifikasi Akun Binary.com
+INFO LEBIH LANJUT ( https://www.emoney.cash/panduan.html?id=Cara_Daftar_Verifikasi_Binary.com )
